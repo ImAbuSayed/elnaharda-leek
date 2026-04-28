@@ -19,7 +19,10 @@
 
 ## Excerpt
 
-> [Clean lyric will be pushed here]
+> النهارده ليك وكل عمري ليك
+> روحي بتناديك وعيني عليك
+> نار الشوق في قلبي بتدوبني
+> خدني في حضنك يا حبيبي ضمني
 > ...
 
 [View Full Lyrics ->](./lyrics.txt)
